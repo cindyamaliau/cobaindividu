@@ -1,0 +1,2 @@
+# cobaindividu
+cindy amalia u
